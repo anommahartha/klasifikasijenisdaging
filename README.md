@@ -1,3 +1,6 @@
 DATASET DAPAT DIUNDUH PADA LINK BERIKUT
-
 https://1drv.ms/f/s!As4Iuu85bb5s7geedpmuRTW6oezv?e=GwqYdW
+
+
+HASIL PENGUJIAN DAPAT DILIHAT PADA LINK BERIKUT.
+https://1drv.ms/f/s!As4Iuu85bb5s5iAd6gfl0nTVHs07?e=44pP4L
